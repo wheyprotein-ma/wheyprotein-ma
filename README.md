@@ -7,8 +7,7 @@ We are dedicated to providing the Moroccan fitness community with certified, hig
 
 ### 🌐 Direct Links
 - **Official Store:** [https://wheyprotein.ma](https://wheyprotein.ma)
-- **Latest Prices:** [Whey Protein Prix Maroc](https://wheyprotein.ma)
-- **Authentication Guide:** [Guide Authenticité](https://wheyprotein.ma/guide-authenticite)
+- **Latest Prices:** [Whey Protein Prix Maroc](https://wheyprotein.ma/product-category/whey-protein-prix-maroc/)
 
 ## 🛡️ Brands We Carry
 - Rule 1 Proteins
